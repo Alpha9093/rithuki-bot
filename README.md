@@ -1,0 +1,2 @@
+# rithuki-bot
+fuck you
